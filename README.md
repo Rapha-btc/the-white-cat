@@ -1,4 +1,4 @@
-# The White Cat - Poem Analysis
+# The White Cat by Rafico B. - Poem Analysis
 
 ## The Complete Poem
 
